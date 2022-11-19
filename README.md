@@ -4,4 +4,4 @@
 
 🎓 Learning Data Science
 
-✉ github.pawarsarthak@gmail.com
+✉ personalwork.sarthak@gmail.com
