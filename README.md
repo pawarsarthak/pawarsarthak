@@ -1,7 +1,7 @@
 👦 Sarthak Pawar
 
-🔥 Future Data Scientist
+🎓 Passionate In Studies
 
-🎓 Learning Data Science
+🔥 Future Data Scientist
 
 ✉ personalwork.sarthak@gmail.com
