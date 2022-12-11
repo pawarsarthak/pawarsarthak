@@ -2,6 +2,6 @@
 
 🎓 Passionate In Studies
 
-🔥 Future Data Scientist
+🔥 Learning Data Science
 
 ✉ personalwork.sarthak@gmail.com
